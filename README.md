@@ -1,7 +1,7 @@
 ![Hey hey! WELCOME to my Github! ^,_,^ (1)](https://github.com/user-attachments/assets/2f4aed78-72a0-401b-9e85-d855587e9a4c)
 
 
-![pony-town-❕-boop-sit-blinking-padded-4x](https://github.com/user-attachments/assets/44ec0279-ab9c-4b02-b077-8c3687ee48bb)  :P
+![pony-town-❕-boop-sit-blinking-padded-4x](https://github.com/user-attachments/assets/44ec0279-ab9c-4b02-b077-8c3687ee48bb)  
 ![pony-town-deku-boop-sit-hearts-blinking-padded-4x](https://github.com/user-attachments/assets/466f1d6f-9362-4ca4-bf27-6b3cb93558dc)
 
 
