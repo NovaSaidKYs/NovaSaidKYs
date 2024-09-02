@@ -7,16 +7,27 @@
 ![ABOUT ME (1)](https://github.com/user-attachments/assets/4c87e9a7-bb83-4c4c-87e7-92153d8cd876)
 
 I go by He/him.
+
 Im black.
+
 Im a christian. I ♡ Jesus guys >_<. (not homophobic i swear)
+
 I have adhd! don't get mad at me when I miss what you say.
+
 I tend to be very talkative around those I am comfortable with!
+
 I ask many questions.
+
 I suffer from anxiety attacks, if you ever notice me acting off dont be afriad to try and help.
+
 Im an artist! and musician.
+
 I overthink stuff alot which causes me to ask a bunch of unecessary questions so please be more specific when talking me!
+
 Interact w/m anytime! as long as im in a good mood (99% of the time) id be happy to respond!
+
 I sometimes make WILLD jokes. so, be warned.. >:)
+
 I love cats.
 
 ![MY GANG](https://github.com/user-attachments/assets/b79d79eb-317a-421a-8c2d-515cf8d83389)
