@@ -2,6 +2,7 @@
 
 
 ![pony-town-❕-boop-sit-blinking-padded-4x](https://github.com/user-attachments/assets/44ec0279-ab9c-4b02-b077-8c3687ee48bb)  :P
+![pony-town-deku-boop-sit-hearts-blinking-padded-4x](https://github.com/user-attachments/assets/466f1d6f-9362-4ca4-bf27-6b3cb93558dc)
 
 
 ![ABOUT ME (1)](https://github.com/user-attachments/assets/4c87e9a7-bb83-4c4c-87e7-92153d8cd876)
