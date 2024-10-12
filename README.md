@@ -85,5 +85,4 @@ MY KIDS ARE:
 
 ![SERIA](https://github.com/user-attachments/assets/62e95a1a-196e-4df6-9ff0-1b2bfe23da8d)
 
-I am also taken by the prettiest girl ever! ^_^
 
