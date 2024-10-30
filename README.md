@@ -9,8 +9,7 @@
 
 𝕀ℕ𝔽𝕆ℝ𝕄𝔸𝕋𝕀𝕆ℕ 𝔹𝔼𝕃𝕆𝕎
        ⬇
-
-Don't cover me please it annoys me badly, if you didnt know then thats fine but if youre gonna cover me after reading this then, ok man..
+wip.. 
 
 !𝕋𝕎! '𝕊𝔸' 𝕒𝕟𝕕 '𝔾𝕣𝕠𝕠𝕞𝕚𝕟𝕘' 𝕞𝕖𝕟𝕥𝕚𝕠𝕟.
 
