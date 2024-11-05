@@ -4,6 +4,7 @@ Hi Im nova ^_^ im js a chill guy on an adventure to make frnds.
 
 <font color="red">Nova . he/him EN } 28. Jul</font>
  TT . leo ! 
+ 
  S0cials . . dc > nova__04260 
 
  Don't add me randomly! lets have a talk before that ^_^ .
