@@ -8,4 +8,6 @@ Hi Im nova ^_^ im js a chill guy on an adventure to make frnds.
  S0cials . . dc > nova__04260 
 
  Don't add me randomly! lets have a talk before that ^_^ .
-https://i.pinimg.com/originals/ff/1d/c7/ff1dc7a0777f82816e9326fbb70e2942.gif
+
+ ![image](https://github.com/user-attachments/assets/b199a756-ae64-4d99-adfa-4c202b25ccde)
+upd . 5/11/24
