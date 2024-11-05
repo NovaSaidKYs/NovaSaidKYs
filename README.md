@@ -2,10 +2,10 @@
 
 Hi Im nova ^_^ im js a chill guy on an adventure to make frnds. 
 
-![small_star_transparent_for_github](https://github.com/user-attachments/assets/f8d31e63-68e7-467c-80f3-10401f0ef680)
  <font color="red">Nova . he/him EN } 28. Jul</font>
  TT . leo ! 
  
  S0cials . . dc > nova__04260 
 
  Don't add me randomly! lets have a talk before that ^_^ .
+![image](https://github.com/user-attachments/assets/a5d5c8f2-9316-4b16-a61b-6e73d7c4dd0a)
