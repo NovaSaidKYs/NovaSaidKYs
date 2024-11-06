@@ -14,3 +14,5 @@ Hi Im nova ^_^ im js a chill guy on an adventure to make frnds.
 
  ![image](https://github.com/user-attachments/assets/b199a756-ae64-4d99-adfa-4c202b25ccde)
 upd . 5/11/24
+
+![image](https://github.com/user-attachments/assets/3b63fbd5-d8e4-44d0-81a6-0bfc77461a37)
