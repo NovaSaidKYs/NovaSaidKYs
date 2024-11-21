@@ -1,9 +1,6 @@
 ![image](https://github.com/user-attachments/assets/d42b9dbb-633f-474b-9cde-4b896e82cf92)
 
 
-
-![pony-town-lowkey-sit-zzz-blinking-padded-toy344-4x](https://github.com/user-attachments/assets/a3f86642-b79f-4b74-80c7-dd954e84d7db)
-
 Hi Im nova ^_^ im js a chill guy on an adventure to make frnds. 
 
  <font color="red">Nova . he/him EN } 28. Jul</font>
@@ -15,5 +12,4 @@ Hi Im nova ^_^ im js a chill guy on an adventure to make frnds.
 
  ![image](https://github.com/user-attachments/assets/b199a756-ae64-4d99-adfa-4c202b25ccde)
 upd . 5/11/24
-
-![image](https://github.com/user-attachments/assets/3b63fbd5-d8e4-44d0-81a6-0bfc77461a37)
+![image](https://github.com/user-attachments/assets/2e4e3d1f-f5c1-40f1-825f-d2acc7b79662)
