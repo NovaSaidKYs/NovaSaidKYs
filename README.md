@@ -19,8 +19,11 @@ I got anger issues which I try my best to control lmao.
 
 *I am christian, do NOT mock my religion in any way.
 
+
 DNI: Normal weird shit that people dont like
+
 INT: Anyone who isnt overstepping the boundaries of the DNI
+
 
 SHIPS: I dont really care about ships, ship whatever you like man, as long as it aint any pedo shit then im fine!
 
