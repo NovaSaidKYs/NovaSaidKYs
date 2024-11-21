@@ -1,15 +1,28 @@
 ![image](https://github.com/user-attachments/assets/d42b9dbb-633f-474b-9cde-4b896e82cf92)
 
+Yo! ^_^
 
-Hi Im nova ^_^ im js a chill guy on an adventure to make frnds. 
+lets get to know about me zipzip
 
- <font color="red">Nova . he/him EN } 28. Jul</font>
- TT . leo ! 
- 
- S0cials . . dc > nova__04260 
+My name is 'Nova'
+I am 'Trinidaian' (black male)
+I am a 'Guy'
+My favourite color is Red and black, sometimes blue.
+I suffer from hypersexuality and adhd, I think i might be dyslexic too.
+I usually hang out at the mha area, youd often see me in one of my favourite deku cosplays, dont be afraid to say hi!
+I got anger issues which I try my best to control lmao.
 
- Don't add me randomly! lets have a talk before that ^_^ .
+*I am christian, do NOT mock my religion in any way.
 
- ![image](https://github.com/user-attachments/assets/b199a756-ae64-4d99-adfa-4c202b25ccde)
-upd . 5/11/24
+DNI: Normal weird shit that people dont like
+INT: Anyone who isnt overstepping the boundaries of the DNI
+
+SHIPS: I dont really care about ships, ship whatever you like man, as long as it aint any pedo shit then im fine!
+
+Text me on discord:  nova__04260
+Join my server! Just ask me for the link.
+Roblox: NovalovesV (it'll change soon)
+Tiktok :https://www.tiktok.com/@novathe_king?is_from_webapp=1&sender_device=pc
+
 ![image](https://github.com/user-attachments/assets/2e4e3d1f-f5c1-40f1-825f-d2acc7b79662)
+upd . 5/11/24
