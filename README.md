@@ -31,7 +31,7 @@ Text me on discord:  nova__04260
 
 Join my server! Just ask me for the link.
 
-Roblox: NovalovesV (it'll change soon)
+Roblox: NovalovesV (it'll change soon)>upd: aint no fuckin way i gotta pay 1k to change my fuckin name
 
 Tiktok :https://www.tiktok.com/@novathe_king?is_from_webapp=1&sender_device=pc
 
