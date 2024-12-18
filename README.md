@@ -13,7 +13,7 @@ My favourite color is Red and black, sometimes blue.
 
 I suffer from hypersexuality and adhd, I think i might be dyslexic too.
 
-I usually hang out at the mha area, youd often see me in one of my favourite deku cosplays, dont be afraid to say hi!
+I hang out anywhere but u might find me in the mha area with my friends.
 
 I got anger issues which I try my best to control lmao.
 
