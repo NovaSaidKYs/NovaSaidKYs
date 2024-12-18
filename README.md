@@ -1,4 +1,5 @@
-![image](https://github.com/user-attachments/assets/1215ea1f-b8cf-4e28-ade8-d57609e11df0)
+![image](https://github.com/user-attachments/assets/dea24cbf-6856-481a-80cf-bcda3c038917)
+
 Yo! ^_^
 
 lets get to know about me 👽
@@ -36,6 +37,6 @@ Roblox: NovalovesV (it'll change soon)>upd: aint no fuckin way i gotta pay 1k to
 Tiktok :https://www.tiktok.com/@novathe_king?is_from_webapp=1&sender_device=pc
 
 https://en.pronouns.page/@Novaah
-![image](https://github.com/user-attachments/assets/2d17ba6d-dcbd-4e8f-badd-115f62c289b8)
+![image](https://github.com/user-attachments/assets/7abcdbc9-405e-4781-928d-e00e4cdf4ce4)
 
 upd . 5/11/24
