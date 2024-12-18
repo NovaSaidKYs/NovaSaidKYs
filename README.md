@@ -2,7 +2,7 @@
 
 Yo! ^_^
 
-lets get to know about me zipzip
+lets get to know about me 👽
 
 My name is 'Nova'
 
@@ -37,6 +37,6 @@ Roblox: NovalovesV (it'll change soon)>upd: aint no fuckin way i gotta pay 1k to
 Tiktok :https://www.tiktok.com/@novathe_king?is_from_webapp=1&sender_device=pc
 
 https://en.pronouns.page/@Novaah
+![image](https://github.com/user-attachments/assets/2d17ba6d-dcbd-4e8f-badd-115f62c289b8)
 
-![image](https://github.com/user-attachments/assets/2e4e3d1f-f5c1-40f1-825f-d2acc7b79662)
 upd . 5/11/24
