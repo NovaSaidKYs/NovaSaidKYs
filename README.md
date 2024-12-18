@@ -1,4 +1,5 @@
-![image](https://github.com/user-attachments/assets/d42b9dbb-633f-474b-9cde-4b896e82cf92)
+![image](https://github.com/user-attachments/assets/1215ea1f-b8cf-4e28-ade8-d57609e11df0)
+
 Yo! ^_^
 
 lets get to know about me zipzip
