@@ -1,4 +1,4 @@
-![Profile Views](https://komarev.com/ghpvc/?username=yourusername)
+![Profile Views](https://komarev.com/ghpvc/?username=yourusername) <-- since August🎉
 
 ![image](https://github.com/user-attachments/assets/dea24cbf-6856-481a-80cf-bcda3c038917)
 
