@@ -42,3 +42,7 @@ https://en.pronouns.page/@Novaah
 ![image](https://github.com/user-attachments/assets/7abcdbc9-405e-4781-928d-e00e4cdf4ce4)
 
 upd . 5/11/24
+
+
+
+
