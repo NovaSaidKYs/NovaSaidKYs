@@ -1,3 +1,5 @@
+![Profile Views](https://komarev.com/ghpvc/?username=yourusername)
+
 ![image](https://github.com/user-attachments/assets/dea24cbf-6856-481a-80cf-bcda3c038917)
 
 Yo! ^_^
