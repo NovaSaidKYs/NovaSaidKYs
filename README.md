@@ -8,9 +8,7 @@ lets get to know about me 👽
 
 My name is 'Nova'
 
-I am 'Trinidaian' (black male)
-
-I am a 'Guy'
+I am 'Trinidaian' 
 
 My favourite color is Red and black, sometimes blue.
 
