@@ -12,7 +12,7 @@ I am 'Trinidaian'
 
 My favourite color is Red and black, sometimes blue.
 
-I suffer from hypersexuality and adhd, I think i might be dyslexic too.
+I suffer from hypersexualiy and adhd im dyslexic and bipolar aswell
 
 I hang out anywhere but u might find me in the mha area with my friends.
 
