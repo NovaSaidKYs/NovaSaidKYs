@@ -1,7 +1,8 @@
 ![Profile Views](https://komarev.com/ghpvc/?username=NovasaidKYs&color=red)
 
 
-![image](https://github.com/user-attachments/assets/6973545a-dd65-42b2-a391-601d84ed85f5)
+![image](https://github.com/user-attachments/assets/6b58bb91-7fb5-464f-9e0e-4ca3c85ba09b)
+
 
 
 
